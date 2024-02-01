@@ -1,0 +1,1 @@
+Android sistema eragileak
